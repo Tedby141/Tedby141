@@ -20,7 +20,7 @@ Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3
 
 **DNI**
 
-So, as I mentioned, I don't really have a dni. Though i put this here anyway to make it clear like, just be a normal human person. Like, basic dni such as homophobia, transphobia, racism, xenophobia, ableism, creeps and self-proclaimed "problematic people". Though I will add that I'm soon turning 18, I don't feel comfortable having people 15 and under trying to befriend me. Please respect that!
+So, as I mentioned, I don't really have a dni. Though i put this here anyway to make it clear like, just be a normal human person. Like, basic dni such as homophobia, transphobia, racism, xenophobia, ableism, creeps and self-proclaimed "problematic people". Though I will add that I'm soon turning 18, I'd prefer people 15 and under to interact with caution! I'm not your babysitter.
 
 ★
 
