@@ -1,6 +1,8 @@
-![](https://i.pinimg.com/736x/25/c0/7d/25c07da649165d9b0b4119f2d8dbc60f.jpg)
+![](https://i.pinimg.com/736x/70/95/4f/70954f2d536e6740c8c2d797e45903f0.jpg)
 
-## HELLO! I'm Tedby!! (Or Flux)
+Art by this person -> https://pin.it/6gWan5wKs
+
+## HELLO! I'm Tedby or Avery!! (Or Flux)
 
 I'm a chronically online PonyTown player, which is likely where you found this.. Umm.. Heh.. Hello..
 
@@ -19,6 +21,7 @@ Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3
 4. I curse a lot AND I say reclaimable slurs, PLEASE tell me if you're uncomfortable with that, I will not be mad and I'll try to think before speaking a bit more! <3
 5. As with number one, the reason I am quiet and so introverted is because I do have really bad social anxiety. But once I get to know someone, I'm much more open!
 6. I can start to cling really easily if you talk to me a lot and so. I won't depend on you like my life depends on it, but expect me to be like "omg omgo mgomg hiii omggg hiii can i hang out with u" and shit, because I am a really lonely individual and search out safe spaces and people to be safe around though I don't really take that first step due to my social anxiety and anxiety in general.
+7. Dissociative disorder, neurodivergence and mentally unwell. That's all you gotta know. Behaviours may or may not be affected by these. 
 
 **DNI**
 
