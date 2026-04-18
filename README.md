@@ -7,7 +7,7 @@ Art by this person -> https://pin.it/6gWan5wKs
 I'm a chronically online PonyTown player, which is likely where you found this.. Umm.. Heh.. Hello..
 
 
-As you can see, I'm 17! I'm agender genderflux. I'm neurodivergent and a mentally ill person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛
+As you can see, I'm 17! I'm agender genderflux. I'm neurodivergent and a mentally ill + mentally disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛
 
 Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3
 
@@ -16,12 +16,11 @@ Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3
 **BYI**
 
 1. I'm very quiet usually, i'm very introverted unless I'm with my friend. Yes, friend, singular, I'm LONELY.
-2. Even if I don't have c+h in my name, it's ALWAYS allowed unless my name is dniuf/dni/etc. But if it says like iwc, iwec or so, FEEL MORE THAN FREE TO SIT DOWN WITH ME!
+2. Even if I don't have c+h in my name, it's ALWAYS allowed and heavily encouraged unless my name is dniuf/dni/etc. But if it says like iwc, iwec or so, FEEL MORE THAN FREE TO SIT DOWN WITH ME! It just means i'm in a yucky mood
 3. I'm offtab a LOT, so I might disconnect or reply late, hence whispering to talk to me is much more preferred! I'm NOT ignoring you, PROMISE!!
 4. I curse a lot AND I say reclaimable slurs, PLEASE tell me if you're uncomfortable with that, I will not be mad and I'll try to think before speaking a bit more! <3
 5. As with number one, the reason I am quiet and so introverted is because I do have really bad social anxiety. But once I get to know someone, I'm much more open!
 6. I can start to cling really easily if you talk to me a lot and so. I won't depend on you like my life depends on it, but expect me to be like "omg omgo mgomg hiii omggg hiii can i hang out with u" and shit, because I am a really lonely individual and search out safe spaces and people to be safe around though I don't really take that first step due to my social anxiety and anxiety in general.
-7. Dissociative disorder, neurodivergence and mentally unwell. That's all you gotta know. Behaviours may or may not be affected by these. 
 
 **DNI**
 
