@@ -2,7 +2,7 @@
 
 Art by this person -> https://pin.it/6gWan5wKs
 
-## HELLO! I'm Tedby or Avery!! (Or Flux)
+## HELLO! I'm Tedby or Avery!! (Or Flux) ☆ Nonsharing Simon 'Ghost' Riley & Nikto selfshipper!
 
 I'm a chronically online PonyTown player, which is likely where you found this.. Umm.. Heh.. Hello..
 
