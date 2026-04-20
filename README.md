@@ -1,3 +1,5 @@
+[Please read this before interaction!](https://rentry.org/tedbysstatuses)
+
 ![](https://i.pinimg.com/736x/70/95/4f/70954f2d536e6740c8c2d797e45903f0.jpg)
 
 Art by this person -> https://pin.it/6gWan5wKs
