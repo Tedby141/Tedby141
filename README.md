@@ -1,12 +1,12 @@
 ## Statuses
 
-<sup>🟢/Online : Interactions encouraged, prob in a good mood!</sup>
+<sup>🟢/Online : Interactions encouraged, prob in a good mood! More likely ontab!</sup>
 
-<sup>🌙/Away : Interactions happily accepted, w2i pref, prob offtab!</sup>
+<sup>🌙/Away : Interactions still encouraged, but w2i pref! Likely offtab!</sup>
 
 <sup>❔/Looking for Chat : Interactions even more encouraged, talk to me!</sup>
 
-<sup>🔴/busy : Either just don't interact or interact with caution, likely cranky, upset, moody etc etc.</sup>
+<sup>🔴/busy : Either just don't interact or interact with extra caution and care, likely cranky, upset, moody etc etc.</sup>
 
 <sup>Remember, c+h is always fine unless strictly specified otherwise in name. (dni, dnc+h) , otherwise, don't ask and just c+h if you feel like it! I don't bite! :p</sup>
 
