@@ -8,7 +8,7 @@ Art by this person -> https://pin.it/6gWan5wKs
 
 <sup>I'm a chronically online PonyTown player, which is likely where you found this.. Ohhh.. Hello..</sup>
 
-<sup>As you can see, I'm 17! I'm agender + agenderflux. I'm neurodivergent and a mentally ill + mentally disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
+<sup>As you can see, I'm 18! I'm agender + agenderflux. I'm neurodivergent and a mentally ill + mentally disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
 
 <sup>Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3</sup>
 
