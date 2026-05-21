@@ -4,11 +4,11 @@
 
 Art by this person -> https://pin.it/6gWan5wKs
 
-# HELLO! I'm Tedby or Derek!! (Or Avery)
+# HELLO! I'm Tedby or Egg!! (Or Derek)
 
 <sup>I'm a chronically online PonyTown player, which is likely where you found this.. Ohhh.. Hello..</sup>
 
-<sup>As you can see, I'm 18! I'm agender + agenderflux. I'm neurodivergent and a mentally ill + mentally disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
+<sup>As you can see, I'm 18! I'm agender + agenderflux. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
 
 <sup>Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3</sup>
 
@@ -16,9 +16,9 @@ Art by this person -> https://pin.it/6gWan5wKs
 
 # **BYI**
 
-<sup>★ I'm a nonsharing Simon "[ghost](https://callofduty.fandom.com/wiki/Simon_%22Ghost%22_Riley_(Reboot))" Riley and [Nikto](https://callofduty.fandom.com/wiki/Nikto) selfshipper! I am very emotionally attached to these two characters!! Even if you don't like it, please respect the fact that it distracts me and makes me healthier mental wise.</sup>
+<sup>★ I'm a nonsharing Simon "[ghost](https://callofduty.fandom.com/wiki/Simon_%22Ghost%22_Riley_(Reboot))" Riley and [Nikto](https://callofduty.fandom.com/wiki/Nikto) selfshipper! I am very emotionally attached to these two characters!! Even if you don't like it, please respect the fact that it distracts me and makes me healthier mental wise :))</sup>
 
-<sup>☆ I'm very quiet usually, i'm very introverted unless I'm with my friend. Yes, friend, singular, I'm LONELY.</sup>
+<sup>☆ I'm very quiet usually, i'm very introverted unless I'm with friends.</sup>
 
 <sup>★ Even if I don't have c+h in my name, it's ALWAYS allowed and heavily encouraged unless my name is dniuf/dni/etc. But if it says like iwc, iwec or so, FEEL MORE THAN FREE TO SIT DOWN WITH ME! It just means i'm in a yucky mood</sup>
 
