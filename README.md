@@ -1,8 +1,6 @@
 [Please read this before interaction!](https://rentry.org/tedbysstatuses)
 
-![](https://i.pinimg.com/736x/70/95/4f/70954f2d536e6740c8c2d797e45903f0.jpg)
-
-Art by this person -> https://pin.it/6gWan5wKs
+![](https://i.pinimg.com/736x/5c/19/84/5c19849261eb69929d976239b80048d3.jpg)
 
 # HELLO! I'm Tedby or Egg!! (Or Derek)
 
