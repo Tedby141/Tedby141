@@ -38,6 +38,8 @@
 
 <sup>And Honestly, dni if you're just talking to me because of drama since I put shit behind me really easily.</sup>
 
+<sup>DNI if Lost/TDS or if you're friends/related with her.</sup>
+
 ★
 
 <sup>Taking inspo from my skins is perfectly fine. But don't copy it completely. Be creative, be original. Inspo is fine, yes, but please ask first! (whispers preferably, that way i'll see it once i tab on)</sup>
