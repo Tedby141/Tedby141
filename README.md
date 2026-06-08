@@ -36,7 +36,7 @@
 
 <sup>I don't really have a dni. Though i put this here anyway to make it clear like, just be a normal human person. Like, basic dni such as homophobia, transphobia, racism, xenophobia, ableism, creeps and self-proclaimed "problematic people", etc etc you know the drill. Though I will add that I'm 18, I'd prefer people 15 and under to interact with caution!</sup>
 
-<sup>And Honestly, dni if you're just talking to me because of drama since I put shit behind me really easily.</sup>
+<sup>Dni if you're just talking to me because of old drama or incidents since I like to put stuff behind me.</sup>
 
 <sup>DNI if Lost/TDS or if you're friends/related with her.</sup>
 
