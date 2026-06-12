@@ -1,12 +1,12 @@
 [Please read this before interaction!](https://rentry.org/tedbysstatuses)
 
-![](https://i.pinimg.com/736x/5c/19/84/5c19849261eb69929d976239b80048d3.jpg)
+![](https://i.pinimg.com/1200x/4d/c6/e1/4dc6e122d942dc02ee3626102ddaacc6.jpg)
 
-# HELLO! I'm Tedby or Egg!! (Or Derek)
+# HELLO! I'm Tedby or Egg!! (Or Omen)
 
 <sup>I'm a chronically online PonyTown player, which is likely where you found this.. Ohhh.. Hello..</sup>
 
-<sup>As you can see, I'm 18! I'm agender + agenderflux. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
+<sup>As you can see, I'm 18! I'm agender/agenderflux. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
 
 <sup>Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3</sup>
 
