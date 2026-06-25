@@ -2,17 +2,17 @@
 
 ![](https://i.pinimg.com/1200x/4d/c6/e1/4dc6e122d942dc02ee3626102ddaacc6.jpg)
 
-# HELLO! I'm Tedby or Egg!! (Or Omen)
+# Hello, I'm Tedby or Tank.
 
-<sup>I'm a chronically online PonyTown player, which is likely where you found this.. Ohhh.. Hello..</sup>
+<sup>I'm a chronically online PonyTown player, which is most definitely where you found this.</sup>
 
-<sup>As you can see, I'm 18! I'm agender/agenderflux. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me?. Sorry this is so buns this is the first time i'm making something like this umm excuse my horrid shit eurghh.... 💛💛💛</sup>
+<sup>As you can see, I'm 18. I'm afab and agender who uses any pronouns. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me? I guess?</sup>
 
-<sup>Some basic info, which is like i don't know, dni's and byi's ok? ok! <3<3</sup>
+<sup>What you'll see here is basic info like dni's and byi's. And by the way, I rarely (NEVER) start conversations first. Approach me first, thank you.</sup>
 
-## ★
+<details>
 
-# **BYI**
+<summary>BYI</summary>
 
 <sup>★ I'm a nonsharing Simon "[ghost](https://callofduty.fandom.com/wiki/Simon_%22Ghost%22_Riley_(Reboot))" Riley and [Nikto](https://callofduty.fandom.com/wiki/Nikto) selfshipper! I am very emotionally attached to these two characters!! Even if you don't like it, please respect the fact that it distracts me and makes me healthier mental wise :))</sup>
 
@@ -30,9 +30,11 @@
 
 <sup>☆ I have chronic severe tummy aches daily, if I don't respond i'm probably afk shitting my guts out or offtab ok??? dont take it to heart if i dont answer you</sup>
 
-## ★
+</details>
 
-# **DNI**
+<details>
+  
+<summary>DNI</summary>
 
 <sup>I don't really have a dni. Though i put this here anyway to make it clear like, just be a normal human person. Like, basic dni such as homophobia, transphobia, racism, xenophobia, ableism, creeps and self-proclaimed "problematic people", etc etc you know the drill. Though I will add that I'm 18, I'd prefer people 15 and under to interact with caution!</sup>
 
@@ -47,3 +49,4 @@
 ★
 
 <sup>Ok that's like, all? I guess? LMAO.. just know you're amazing btw! Thanks for reading oh my days excuse my shitty thingy</sup>
+</details>
