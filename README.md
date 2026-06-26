@@ -1,8 +1,8 @@
 [Please read this before interaction!](https://rentry.org/tedbysstatuses) | [CLICK HERE TO STREAM DUMMY BY TUV](https://open.spotify.com/album/3Cw6K519kuFiY1ON5HJJf3?si=Uz9W_uqBTMmE0fK5J6XmSg)
 
-![](https://i.pinimg.com/1200x/4d/c6/e1/4dc6e122d942dc02ee3626102ddaacc6.jpg)
+![](https://i.pinimg.com/736x/34/4f/bf/344fbfa643b008813d1460969611a368.jpg)
 
-# Hello, I'm Tedby or Tank.
+# Hello, I'm Tank or Tedby.
 
 <sup>I'm a chronically online PonyTown player, which is most definitely where you found this.</sup>
 
