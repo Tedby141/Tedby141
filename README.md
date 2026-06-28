@@ -6,15 +6,13 @@
 
 <sup>I'm a chronically online PonyTown player, which is most definitely where you found this.</sup>
 
-<sup>As you can see, I'm 18. I'm afab and agender who uses any pronouns. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me? I guess?</sup>
+<sup>As you can see, I'm 18. I'm afab but t-masc agender who uses any pronouns. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me? I guess?</sup>
 
 <sup>What you'll see here is basic info like dni's and byi's. And by the way, I rarely (NEVER) start conversations first. Approach me first, thank you.</sup>
 
 <details>
 
 <summary>BYI</summary>
-
-<sup>★ I'm a nonsharing Simon "[ghost](https://callofduty.fandom.com/wiki/Simon_%22Ghost%22_Riley_(Reboot))" Riley and [Nikto](https://callofduty.fandom.com/wiki/Nikto) selfshipper! I am very emotionally attached to these two characters!! Even if you don't like it, please respect the fact that it distracts me and makes me healthier mental wise :))</sup>
 
 <sup>☆ I'm very quiet usually, i'm very introverted unless I'm with friends.</sup>
 
@@ -24,11 +22,9 @@
 
 <sup>★ I curse a lot AND I say reclaimable slurs, PLEASE tell me if you're uncomfortable with that, I will not be mad and I'll try to think before speaking a bit more! <3</sup>
 
-</sup>☆ As with number one, the reason I am quiet and so introverted is because I do have really bad social anxiety. But once I get to know someone, I'm much more open!<sup>
+<sup>☆ As with number one, the reason I am quiet and so introverted is because I do have really bad social anxiety. But once I get to know someone, I'm much more open!</sup>
 
-<sup>★ I can start to cling really easily if you talk to me a lot and so. I won't depend on you like my life depends on it, but expect me to be like "omg omgo mgomg hiii omggg hiii can i hang out with u" and shit, because I am a really lonely individual and search out safe spaces and people to be safe around though I don't really take that first step due to my social anxiety and anxiety in general.</sup>
-
-<sup>☆ I have chronic severe tummy aches daily, if I don't respond i'm probably afk shitting my guts out or offtab ok??? dont take it to heart if i dont answer you</sup>
+<sup>★ I can start to cling really easily if you talk to me a lot because I am affection starved.</sup>
 
 </details>
 
