@@ -34,7 +34,7 @@
 
 <sup>I don't really have a dni. Though i put this here anyway to make it clear like, just be a normal human person. Like, basic dni such as homophobia, transphobia, racism, xenophobia, ableism, creeps and self-proclaimed "problematic people", etc etc you know the drill. Though I will add that I'm 18, I'd prefer people 15 and under to interact with caution!</sup>
 
-<sup>Proship respectfully dni. I used to be proship and that made me so much worse mental wise and it horribly messes with your mind if desentisied to it. [If you're proship please read this](https://fictionandreality.carrd.co/) or [read this](https://fictiondoesaffectreality.carrd.co/#sources). Because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly.</sup>
+<sup>Proship dni. I used to be proship and that made me so much worse mental wise and it horribly messes with your mind if desentisied to it. [If you're proship please read this](https://fictionandreality.carrd.co/) or [read this](https://fictiondoesaffectreality.carrd.co/#sources). Because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly.</sup>
 
 <sup>Dni if you're just talking to me because of old drama or incidents since I like to put stuff behind me.</sup>
 
