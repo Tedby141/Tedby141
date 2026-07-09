@@ -38,7 +38,7 @@
 
 <sup>DNI if Lost/TDS or if you're friends/related with her.</sup>
 
-Not making this pretty. Proship dni. I used to be proship and that made me so much worse mental wise and it horribly messes with your mind if desentisied to it. [If you're proship please read this](https://fictiondoesaffectreality.carrd.co/#sources). Because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly. I am NOT a safe space/person for proshippers to be around and I won't ever be again.
+Not making this pretty. Proship dni. I used to be proship and that made me so much worse mental wise and it horribly messes with your mind if desentisied to it. [If you're proship please read this](https://fictiondoesaffectreality.carrd.co/#sources). Because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly. Please stay away from me as I am NOT a safe space/person for proshippers to be around.
 
 ★
 
