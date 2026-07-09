@@ -40,7 +40,7 @@ DNI if Lost/TDS or if you're friends/related with her.
 
 Dni if you harass people for any reason (unless they're an actual horrid person like a predator)
 
-Proship is a heavy dni. It horribly messes with your mind if desentisied to it. [If you're proship please read this](https://fictiondoesaffectreality.carrd.co/#sources). Because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly. Please stay away from me as I am NOT a safe space/person for proshippers to be around.
+Proship is a heavy dni. It horribly messes with your mind if desentisied to it because fiction DOES affect reality and it did affect mine. Agree to disagree, i don't care, but proship do not interact with me no matter if its directly or indirectly. Please stay away from me as I am NOT a safe space/person for proshippers to be around.
 
 ★
 </details>
