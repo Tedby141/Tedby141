@@ -6,7 +6,7 @@
 
 <sup>I'm a chronically online PonyTown player, which is most definitely where you found this.</sup>
 
-<sup>As you can see, I'm 18. I'm afab but t-masc agender who uses any pronouns. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me.</sup>
+<sup>As you can see, I'm 18. I'm afab agender who uses any pronouns, mainly fem but i can be masc too. I'm neurodivergent and a mentally ill+disordered person, so be like, patient with me.</sup>
 
 <sup>What you'll see here is basic info like dni's and byi's. And by the way, I rarely (NEVER) start conversations first. Approach me first, thank you.</sup>
 
