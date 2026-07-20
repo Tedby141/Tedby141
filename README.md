@@ -10,11 +10,13 @@
 
 <sup>What you'll see here is basic info like dni's and byi's. And by the way, I rarely (NEVER) start conversations first. Approach me first, thank you.</sup>
 
-# Always interact with caution unless we're friends. I have SEVERE emotional irregulations. One minute I'm just fine and the other I act as if I hate you. BE CAUTIOUS.
+# Always interact with caution unless we're friends.
 
 <details>
 
 <summary>BYI</summary>
+
+★ I have SEVERE emotional irregulations. One minute I'm just fine and the other I act as if I hate you. BE CAUTIOUS.
 
 ☆ I'm very quiet usually, i'm very introverted unless I'm with friends.
 
