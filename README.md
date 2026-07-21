@@ -1,4 +1,4 @@
-[Please read this before interaction!](https://rentry.org/tedbysstatuses) | [CLICK HERE TO STREAM DUMMY BY TUV](https://open.spotify.com/album/3Cw6K519kuFiY1ON5HJJf3?si=Uz9W_uqBTMmE0fK5J6XmSg)
+[Please read this before interaction!](https://rentry.org/tedbysstatuses) | [CLICK HERE TO STREAM DUMMY BY TUV!](https://open.spotify.com/album/3Cw6K519kuFiY1ON5HJJf3?si=Uz9W_uqBTMmE0fK5J6XmSg)
 
 ![](https://i.pinimg.com/736x/34/4f/bf/344fbfa643b008813d1460969611a368.jpg)
 
